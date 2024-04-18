@@ -1,0 +1,2 @@
+# BinbinvoGamingVN-VPN
+GG
